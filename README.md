@@ -1,4 +1,4 @@
-扫码加微信，备注V部落，进群讨论。
+扫码加微信，备注V部落，进群讨论1。
 
 ![](http://www.javaboy.org/images/weixin.png)
 
